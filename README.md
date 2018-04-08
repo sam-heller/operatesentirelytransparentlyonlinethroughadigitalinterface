@@ -17,3 +17,4 @@ PUBLIC PLATFORMS USED TO FRAME A PRIVATE EXPERIENCE
 CORPORATIONS BLAH BLAH BLAH
 
 Performativity of online behavior, especially social media engagement.
+
