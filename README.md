@@ -12,4 +12,8 @@ What is performance online?
 Time-based
 The Internot -> a bunch of IRC chatbots running independently of humans
 -- needs to be logged into in at a location
+PUBLIC PLATFORMS USED TO FRAME A PRIVATE EXPERIENCE
 
+CORPORATIONS BLAH BLAH BLAH
+
+Performativity of online behavior, especially social media engagement.
