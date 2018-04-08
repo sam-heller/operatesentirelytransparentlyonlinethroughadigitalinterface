@@ -1,0 +1,2 @@
+# operatesentirelytransparentlyonlinethroughadigitalinterface
+thinktank notes
